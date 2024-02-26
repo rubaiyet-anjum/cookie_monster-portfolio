@@ -1,1 +1,1 @@
-Welcome to the portfolio for Mr. Cookie Monster!
+Portfolio for Mr. Cookie Monster
